@@ -31,3 +31,4 @@ Sources: International Renewable Energy Agency (IRENA) (2022), Renewable Energy 
 
 
 credit to my team: Fikri, Farhan
+videos on this Analysis: https://youtu.be/GULkjjjoyJA?si=EezbmpeUovtBYsaQ 
